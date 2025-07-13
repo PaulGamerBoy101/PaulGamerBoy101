@@ -1,3 +1,8 @@
+## Read My New Book!
+
+### Airships by PauGamerBoy101 : https://www.kobo.com/us/en/ebook/airships-6
+
+
 ## About Me
 | **Category**               | **Information**                         |
 |----------------------------|------------------------------------------|
